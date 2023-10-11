@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 we are currently looking for sponsor to help launch our company. is a talent management company which deals music production, performance, album release, etc also other talents are inclusive like dance, painting drawing drama/content etc. our vision is to look for raw talents that are upcoming and sponsor their art or craft. give them hope a sense of identity recognition value and a home.
 
 <!--
 **Vavtal/Vavtal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
